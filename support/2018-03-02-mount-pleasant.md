@@ -21,6 +21,6 @@
 
 > Their eldest son, Russell, posted a Facebook message over the weekend asking the public and the media not to rush to judgment against his brother, and Hopper said the family was asking for privacy.
 
-[freep.com](Twitter user @itsAmoneyy, believed to be Davis' sister Alexis) - siblings
+[freep.com](https://www.freep.com/story/news/local/michigan/2018/03/04/sibling-accused-cmu-shooter-speaks/393306002/) - siblings
 
 > Twitter user @itsAmoneyy, believed to be Davis' sister Alexis
